@@ -1,0 +1,1 @@
+# SariqDev-Python-amaliyotlari
